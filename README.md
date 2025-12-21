@@ -7,7 +7,8 @@
 
 ₍₍⚞(˶˃ ꒳ ˂˶)⚟⁾⁾  ,, ₛₕₑ | ₕₑᵣ ,, ₜₕₑy | ₜₕₑₘ ,, ᵢₜ | ᵢₜₛ ,, (˶ˆᗜˆ˵) 
 
-<img width="1199" height="740" alt="image" src="https://github.com/user-attachments/assets/0cabf19b-9d5c-4814-809a-d16faa0f15e2" />
+![IMG_2199](https://github.com/user-attachments/assets/35323a94-706c-49e2-a208-710614d6ad7b)
+
 
 ,, ᶠᵉᵉˡ ᶠʳᵉᵉ ᵗᵒ ᶜ*ᴴ ,, ⁱ ᵐᵃʸ ᵇᵉ ˢʰʸ ᵃᵗ ᶠⁱʳˢᵗ ᵇᵘᵗ ⁱᵐ ʳᵉˡˡʸ ᵗᵃˡᵏᵃᵗⁱᵛᵉ ^_^ ,,  ᴼᶠᵗᵉⁿ ᵇʸ ᵇᵃᵏᵉʳʸ / ᴿᵒᵇˡᵒˣ ᶻᵒⁿᵉ | ˢᵒᵐᵉᵗⁱᵐᵉˢ ᵇʸ ᵈᵒᶜᵏˢ ,,
 
