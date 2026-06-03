@@ -1,23 +1,18 @@
+<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/06e2932e-1bcf-4469-b68b-991544362854" />
+
+
+! Protocolo / Zam .
+6teen , check prns.page ! i will make a prns.cc later on ! 
 
 
 
-ᶻ 𝗓 𐰁 .ᐟ 
-
-⊹₊˚‧︵‿₊୨ ₕₐyyᵤᵤᵤ , ₘy ₒₙₗᵢₙₑ ₙₐₘₑ ᵢₛ ɪᴘᴀ ᴀɴᴅ ᴍᴀɴʏ ᴏᴛʜᴇʀs 𝄞! yₒᵤ cₐₙ ₐₗwₐyₛ cₐₗₗ ₘₑ sʏɴᴛᴀx ᵢf yₒᵤ wᵢₛₕ ₜₒ ₜₕₒ! , ୧₊‿︵‧˚₊⊹
-
-₍₍⚞(˶˃ ꒳ ˂˶)⚟⁾⁾  ,, ₛₕₑ | ₕₑᵣ ,, ₜₕₑy | ₜₕₑₘ ,, ᵢₜ | ᵢₜₛ ,, (˶ˆᗜˆ˵) 
-
-! ﹌﹌﹌﹌﹌﹌﹌﹌
 
 
-,, ᶠᵉᵉˡ ᶠʳᵉᵉ ᵗᵒ ᶜ*ᴴ ,, ⁱ ᵐᵃʸ ᵇᵉ ˢʰʸ ᵃᵗ ᶠⁱʳˢᵗ ᵇᵘᵗ ⁱᵐ ʳᵉˡˡʸ ᵗᵃˡᵏᵃᵗⁱᵛᵉ ^_^ ,,  ᴼᶠᵗᵉⁿ ᵇʸ ᵇᵃᵏᵉʳʸ / ᴿᵒᵇˡᵒˣ ᶻᵒⁿᵉ | ˢᵒᵐᵉᵗⁱᵐᵉˢ ᵇʸ ᵈᵒᶜᵏˢ ,,
+blinkies:
 
-⋆˚꩜｡ 𐔌 . ⋮ 𝚃𝚛𝚒𝚊𝚗𝚎𝚕'𝚜 .ᐟ ֹ ₊ DNI LIST!! : 
-
-> ᴴᵒᵐᵒᵖʰᵒᵇⁱᶜ, ᵀʳᵃⁿˢᵖʰᵒᵇⁱᶜ, ˣᵉⁿᵒᵖʰᵒᵇⁱᶜ, ᴵˢˡᵃᵐᵒᵖʰᵒᵇⁱᶜ, ᵉᵗᶜ.
-> > ᴹⁱˢᵒᵍʸⁿⁱˢᵗⁱᶜ > ᴿᵃᶜⁱˢᵗ, ˢᵉˣⁱˢᵗ, ᴬᵇˡᵉⁱˢᵗ, ᴰⁱˢᶜʳⁱᵐⁱⁿᵃᵗⁱᵒⁿ, ᵉᵗᶜ.
-> > > ᴵⁿᵛᵃˡⁱᵈᵃᵗᵉˢ ᴬ ᴾᵉʳˢᵒⁿ'ˢ ᴾʳᵒⁿᵒᵘⁿˢ / ᴳᵉⁿᵈᵉʳ / ᴵᵈᵉⁿᵗⁱᵗʸ
-> > > > ᴾᵉᵈᵒᵖʰⁱˡᵉ, ˢᵉˣᵘᵃˡⁱᶻᵉˢ ᴹⁱⁿᵒʳˢ, ᴶᵒᵏᵉˢ ᴬᵇᵒᵘᵗ ᴿ×ᵖᵉ, ᵉᵗᶜ.
-> > > > > ˢᵘᵖᵖᵒʳᵗˢ, ᵖᵃʳᵗⁱᶜⁱᵖᵃᵗᵉˢ, ᵗᵒˡᵉʳᵃᵗᵉˢ, ᵒʳ ʲᵘˢᵗⁱᶠʸ ᵃⁿʸ ᵒᶠ ᵗʰᵉ ᵃᵇᵒᵛe
-
-![C39A15EC-E2A0-4E4A-B447-53CBCF32CC05](https://github.com/user-attachments/assets/e3075918-abb4-4337-924a-e32b47197cc4)
+<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/3f69c3f2-eeaa-4c61-99ba-fdaff52244bb" />
+<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/42dbec17-aeb9-48a3-9c5e-91adc9bebb82" />
+<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/7e3018c6-ac1b-4d3a-ae0e-eac0fa9b4f81" />
+<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/aaacab35-bee6-43fd-be7a-26f618329d9d" />
+<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/336d0cf6-5922-47e2-9322-fb63830cec6a" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/9884c53c-d080-4321-9abc-a5d8c839d0e6" />
